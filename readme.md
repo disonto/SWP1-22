@@ -1,2 +1,2 @@
 20223141whtjdals
-kookmin uv.sw
+kookmin univ.sw
